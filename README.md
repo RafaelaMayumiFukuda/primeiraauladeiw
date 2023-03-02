@@ -1,2 +1,2 @@
-# https://rafaelamayumifukuda.github.io./primeiraaulaiw
+# https://rafaelamayumifukuda.github.io/primeiraauladeiw
 primeiraauladeiw
